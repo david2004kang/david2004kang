@@ -27,9 +27,8 @@ Engineer & creator working at the intersection of **electronics, software, and c
 ---
 
 ## 📫 Reach me
-- 🌍 Website: [godwithus.church](https://godwithus.church)  
 - 💼 LinkedIn: [linkedin.com/in/david2004kang](https://www.linkedin.com/in/david2004kang)  
-- ✍️ Blog: [Medium](https://medium.com/@david2004kang)  
+
 
 ---
 
